@@ -6,6 +6,6 @@ Downloaded this template from Styleshout.
 --------------------------------------------------------------------------------------------------------- 
 
 
-Thanks for downloading from Styleshout :)
+Thanks for downloading from Styleshout
   
 
